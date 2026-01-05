@@ -1,1 +1,0 @@
-# furkantosun1607.github.io
